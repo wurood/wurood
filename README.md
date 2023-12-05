@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **wuroodj95@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1b2_xiv88SgV275ChMHUwPQmoDk3uhMcr/view?usp=share_link](https://drive.google.com/file/d/1b2_xiv88SgV275ChMHUwPQmoDk3uhMcr/view?usp=share_link)
+- 📄 Know about my experiences https://drive.google.com/file/d/10-ixg1tWNORLoTOfzixrquvD_qoSKVao/view?usp=drive_link
 <br>
 
 <h3 align="left">Connect with me:</h3>
